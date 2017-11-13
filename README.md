@@ -4,7 +4,7 @@
 
 <a href="http://powerminingpool.pw" target="_blank"><img src="https://www.powerminingpool.com/images/portfolio_screen_short.png"></a>
 
-Power Mining Pool is an amazing platform that provides the tools (Mining Rigs) to help people interested in investing in cryptocurrencies make unlimited money paid in Bitcoin every 3 hours.
+Power Mining Pool is an amazing platform that provides the tools (Mining Rigs) to help people interested in investing in cryptocurrencies make passive income by paying them Bitcoins every 3 hours 24/7.
 
 We mine the 7 most profitable cryptocurrencies and pay you for being part of it. Our automated system monitors and automatically switches the rigs to generate the most profit for you. It’s totally hands-off as you sit back and watch your income grow.
 
